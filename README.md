@@ -1,2 +1,0 @@
-# JTSOFT-DM
-JTSOFT-DM
